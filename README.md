@@ -8,4 +8,4 @@ in my free time i enjoy writing and painting and walking my dog, apollo.
 
 currently open to work!
 
-[website](https://iversonlai.dev) · [email](mailto:hello@iversonlai.dev)
+[website](https://iversonlai.dev), [email](mailto:hello@iversonlai.dev)
